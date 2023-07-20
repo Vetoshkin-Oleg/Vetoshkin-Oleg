@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+Telegram: @Oleg_1801
+Phone: 8-908-908-zero_six-27
+
 <!--
 **Vetoshkin-Oleg/Vetoshkin-Oleg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
