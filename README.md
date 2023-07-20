@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Telegram: @Oleg_1801
+Telegram: @Oleg_1801  
 Phone: 8-908-908-zero_six-27
 
 <!--
