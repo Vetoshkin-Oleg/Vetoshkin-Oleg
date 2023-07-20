@@ -1,9 +1,11 @@
 ### Hi there 👋  
 
-![Profile views](https://gpvc.arturio.dev/[Vetoshkin-Oleg])
+![Profile views]  
+(https://gpvc.arturio.dev/[Vetoshkin-Oleg])
 
 Telegram: @Oleg_1801  
-Phone: 8-908-908-zero_six-27
+Phone: 8-908-908-zero_six-27  
+Email: voa2014@gmail.com
 
 <!--
 **Vetoshkin-Oleg/Vetoshkin-Oleg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
