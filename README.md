@@ -1,6 +1,6 @@
 ### Hi there 👋  
 
-![Profile views](https://gpvc.arturio.dev/[Vetoshkin-Oleg])
+![](https://komarev.com/ghpvc/?username=Vetoshkin-Oleg)
 
 Telegram: @Oleg_1801  
 Phone: 8-908-908-zero_six-27  
