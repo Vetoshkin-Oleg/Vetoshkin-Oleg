@@ -1,6 +1,6 @@
 ### Hi there 👋  
-  
-https://gpvc.arturio.dev/Vetoshkin-Oleg
+
+  ![Profile views](https://gpvc.arturio.dev/[Vetoshkin-Oleg])
 
 Telegram: @Oleg_1801  
 Phone: 8-908-908-zero_six-27
