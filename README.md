@@ -3,8 +3,8 @@
 ![](https://komarev.com/ghpvc/?username=Vetoshkin-Oleg)
 
 Telegram: @Oleg_1801  
-Phone: 8-908-908-zero_six-27  
-Email: voa2014@gmail.com
+Phone: 8-9o8-9o8-zero_six-(3-1)(6+1)  
+Email: voa2014DOGgmailDOTcom
 
 <!--
 **Vetoshkin-Oleg/Vetoshkin-Oleg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
