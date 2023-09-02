@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=Vetoshkin-Oleg)
 
 Telegram: @Oleg_1801  
-Phone: 8-9o8-9o8-zero_six-(3-1)(6+1)  
+Phone: B-9oB-9oB-zero_six-(3-1)(6+1)  
 Email: voa2014DOGgmailDOTcom
 
 <!--
